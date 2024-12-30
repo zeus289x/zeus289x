@@ -1,0 +1,4 @@
+- youtube: xzeus289
+- discord: zeus289x
+- discord sunucu: discord.gg/289
+- instagram: zeus289x
